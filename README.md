@@ -1,4 +1,3 @@
-<img width="674" height="747" alt="image" src="https://github.com/user-attachments/assets/6ed0a1b5-4a3b-4917-9fec-8e9dbbfc1b12" /># Marketing-fairies-
 Marketing Fairies 🧚
 For consultants, coaches, and team leaders who share their expertise every day.
 
